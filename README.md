@@ -1,2 +1,2 @@
 # lyqianxiao.github.io
-浅笑~博客
+浅笑de博客
